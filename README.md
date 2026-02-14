@@ -1,2 +1,2 @@
 ## Hi there 👋
-![dota] (https://pin.it/18420lPCm)
+![dota](https://pin.it/18420lPCm)
