@@ -1,6 +1,4 @@
 ## Hi there 👋
 
-https://github.com/user-attachments/assets/5ba5b2a0-ae77-4b01-b99a-508c157a1ca3
 
-
-![dota](https://jumpshare.com/s/6ElchGKeyFbHLJt9OAC6)
+![dota](https://image2url.com/r2/default/gifs/1771155948030-3f566671-e77b-4858-adfd-05e68c2ed9d6.gif)
